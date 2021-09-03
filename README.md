@@ -1,4 +1,4 @@
-## Opa, me chamo Ariel lopes 😁✌
+## Opa, me chamo Ariel lopes, bem vindo! 😁✌
 
  <div>
   <a href="https://github.com/Arielmlopes">
